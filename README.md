@@ -2,5 +2,5 @@
 ## Integrantes :
 - Rony Mari 24 años General Pinedo 
 - Salusso Mauricio
-- Muñoz Ludmila: 24 años, Buenos Aires.
+- Muñoz Ludmila
 - Palladini Nahuel
