@@ -2,5 +2,5 @@
 ## Integrantes :
 - Rony Mari
 - Salusso Mauricio
-- Muñoz Ludmila
+- Muñoz Ludmila: 24 años, Buenos Aires.
 - Palladini Nahuel
